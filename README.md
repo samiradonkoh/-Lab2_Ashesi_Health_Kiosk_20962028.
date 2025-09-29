@@ -1,1 +1,3 @@
-# -Lab2_Ashesi_Health_Kiosk_20962028.
+Samira Donkoh
+20962028
+Lab 2
